@@ -1,5 +1,5 @@
 # Porque devemos apoiar a idea de um Rendimento Básico Incondicional?
-## Uma resposta a uma crescente questão do século XXI
+Uma resposta a uma crescente questão do século XXI
 
 # O que farias?
 
