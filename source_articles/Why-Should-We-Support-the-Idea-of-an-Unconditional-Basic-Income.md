@@ -1,7 +1,7 @@
 # Why Should We Support the Idea of an Unconditional Basic Income?
-##An answer to a growing question of the 21st century
+An answer to a growing question of the 21st century
 
-# What would you do?
+## What would you do?
 
 So what exactly would you do, if you were guaranteed $1,000 per month for the rest of your life? And yes, that’s around what the amount would most likely be here in the United States, at least at first. So think about that amount for a moment, and don’t think about what others might do with it, think about what you would do with it. Perhaps you would do more of what you enjoy. So what is that?
 
