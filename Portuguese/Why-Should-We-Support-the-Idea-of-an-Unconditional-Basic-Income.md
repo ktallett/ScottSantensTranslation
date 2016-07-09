@@ -4,7 +4,7 @@ Uma resposta a uma crescente questão do século XXI
 # O que farias?
 
 Que farias se te fossem garantidos 1.000 USD por mês para o resto da tua vida?
-E sim, é aproximadamente esse o valor mais provável nos Estados Unidos da América, pelo menos inicialmente. Por isso pensa nesse valor por um momento, e não penses no que os outros poderiam fazer com ele, pensa antes no que farias tu com ele. Talvez fizesses mais aquilo que te agrada. Do que é que estamos a falar afinal?
+E sim, é aproximadamente esse o valor mais provável nos Estados Unidos da América, pelo menos inicialmente. Por isso pensa nesse valor por um momento, e não penses no que os outros poderiam fazer com ele, pensa antes no que farias tu com ele. Talvez te dedicasses mais àquilo que te agrada. Do que é que estamos a falar afinal?
 
 ## Não tentaram já isto na Rússia?
 
